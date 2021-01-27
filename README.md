@@ -3,4 +3,4 @@
 > telegram: @yukiikaji
 
 
-![Alt Text](https://imgur.com/zcmXu45)
+![Alt Text](https://i.imgur.com/zcmXu45.png?1)
